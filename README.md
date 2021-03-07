@@ -1,1 +1,1 @@
-# rsschool-cv
+https://iamkiryl/rsschool-cv/cv
